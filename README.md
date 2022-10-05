@@ -109,3 +109,5 @@ Spoon on the tomato sauce, sprinkle with cheese, and place your desired toppings
 Sprinkle some cornmeal on the baking stone in the oven (watch your hands, the oven is hot!). Gently shake the peel to see if the dough will easily slide, if not, gently lift up the edges of the pizza and add a bit more cornmeal.
 
 Slide the pizza off of the peel and onto the baking stone in the oven.
+
+[link naar de website](https://www.simplyrecipes.com/recipes/homemade_pizza/)
